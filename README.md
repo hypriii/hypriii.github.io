@@ -11,3 +11,6 @@ neocities got blocked in my country, i'm tired of my vpn turning on and off, so 
 
 # why did you not update the website about me redirect to the real website?
 hey stop asking!!! btw because i'm lazy.
+
+# good tips
+suggestions on issues tabs,
